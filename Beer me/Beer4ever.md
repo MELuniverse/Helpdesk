@@ -6,6 +6,7 @@
 
 
 ### Blonde
+* __BAD BOY__ de *Kanahabeer* (Brassée chez moi, à Biscarrosse dans Les Landes^^)
 
 
 ### Brune
